@@ -6,16 +6,8 @@
 
 
 
-![](https://im3.ezgif.com/tmp/ezgif-3-b874c21862ca.gif)
+![](https://i.imgur.com/N8zcKOH.jpg)
 
-
-
-![](https://im3.ezgif.com/tmp/ezgif-3-80eab8943f49.gif)  
-
-
-
-
-![](https://im3.ezgif.com/tmp/ezgif-3-b874c21862ca.gif)  
 
 
 
